@@ -14,4 +14,4 @@ segue este link caso deseje entrar em cotanto comigo
 pedro.flores.andrade@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/1x2k7niVF5gAAAAC/opala-ss.gif)
-![](https://media1.tenor.com/m/RsjutCDdpg0AAAAd/spinning-monkey.gif)
+![](https://media1.tenor.com/m/Fl6m3zSv3XgAAAAd/monkey-spinning.gif)
