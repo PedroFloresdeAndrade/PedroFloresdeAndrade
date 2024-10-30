@@ -15,3 +15,4 @@ pedro.flores.andrade@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/1x2k7niVF5gAAAAC/opala-ss.gif)
 ![](https://media1.tenor.com/m/nB_OXNjSm60AAAAC/beavis-and-butt-head-butthead.gif)
+![](https://media1.tenor.com/m/_GAtO7co4qcAAAAd/nikolas-ferreira-faz-o-l.gif)
